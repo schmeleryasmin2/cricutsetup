@@ -6,4 +6,3 @@
 <p>Small business runners even have an option to create labels. Who wouldn’t love a machine that can perform so many tasks, right? Regardless of the personal or professional requirements, you can create your own designs in the Cricut Design Space. You can easily commercialize them as your own. Moreover, you can download thousands of files for free or access the files as a digital download. Download the Design Space from www.cricut.com/setup.</p>
 <h2>How to Cut Balsa Wood With Cricut Maker Using Knife Blade?</h2>
 <p>In order to cut wood with a Cricut knife blade, you need to opt for these two methods:</p>
-
